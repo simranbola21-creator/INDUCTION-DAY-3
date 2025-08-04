@@ -1,5 +1,5 @@
 # INDUCTION-DAY-3
-GURU NANAK DEV ENGINEERING COLLEGE 
+GURU NANAK DEV ENGINEERING COLLEGE (2-4-2025)
 # Activities of the Day 
 1. Spritiual Lecture in Auditorium :
    On day 3, we attented a spritual and motivational lecture delivered by *Dr.Jaswinder Singh* ,In charge of IAPT.
